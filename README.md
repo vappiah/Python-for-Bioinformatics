@@ -4,3 +4,4 @@ Watch the tutorials on my youtube channel: https://www.youtube.com/playlist?list
 
 # Support my work by buying me a coffee
 [Buy me a coffee ](https://www.buymeacoffee.com/informatician)
+[Paypal ](paypal.me/theinformatician
